@@ -1,2 +1,2 @@
 # myPortPholio
-still in progress
+work is still in process
